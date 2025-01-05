@@ -22,4 +22,5 @@ I'm actively seeking internships and co-op opportunities to further develop my s
 📫 Let's Connect
 Email: hasninetausif@gmail.com
 LinkedIn: Tausif Hasnine Choudhury
+
 Feel free to connect or collaborate with me! 🚀
